@@ -1,2 +1,0 @@
-# PENAL
-CODIGO penal
